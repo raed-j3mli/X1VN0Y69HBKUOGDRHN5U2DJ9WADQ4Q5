@@ -1,0 +1,2 @@
+# X1VN0Y69HBKUOGDRHN5U2DJ9WADQ4Q5
+Secured chats repository
